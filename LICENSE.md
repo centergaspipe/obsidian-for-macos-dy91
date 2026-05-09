@@ -1,4 +1,4 @@
-
+ultimate Obsidian for macOS Automation | custom themes + goal tracking is the best Obsidian for macOS automation, featuring custom themes and goal tracking. Safe, efficient, and
 
 
 
